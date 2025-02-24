@@ -1,0 +1,2 @@
+# cpuz
+only for someone
